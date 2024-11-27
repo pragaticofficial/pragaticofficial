@@ -1,1 +1,1 @@
-  Hi, I’m @pragaticofficial- 👀 I’m interested in AI.
+ Hi, I am Pragati Chaskar, a Mass Media graduate with two years of experience in real estate marketing and sales analysis. Currently, I am pursuing an MBA in Marketing from NMIMS and a Master's program at IT Vedant, gaining skills in SQL, data cleaning, advanced Excel, Tableau, and Power BI. I am seeking opportunities in Business Analytics to leverage my skills and experience for career growth
